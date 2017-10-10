@@ -38,7 +38,7 @@ Best of luck.
 
 ----------------------
 
-Kai Deng
+Created by Kai Deng, Zhenyu Yan, Yan Lin
 
 <wxfkkrrt@gmail.com>
 
